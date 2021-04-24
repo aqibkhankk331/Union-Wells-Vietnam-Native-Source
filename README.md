@@ -1,11 +1,9 @@
 # Union Wells Vietnam Native Source
 
-# READ ME #
-UNION WELLS VIETNAM MAIN POINTS:
+Cutoff switches are utilized in a wide game plan of conditions and applications thinking about their mercilessness, straightforwardness unmistakably of activity, and faithful nature of execution. 
 
-Có trụ sở tại Nam Trung Quốc, Huệ Châu Unionwell chuyên nghiệp trong việc tạo ra và sản xuất các loại thiết bị chuyển mạch vi mô, mô-đun và linh kiện điện tử chính xác khác, được lắp ráp rộng rãi với nhiều thương hiệu cả trong nước và toàn cầu. Nằm ở cửa ngõ giữa Thâm Quyến và Dongguang, xưởng Unionwell rộng hơn 22.000 mét vuông, đội ngũ R & D và các chuyên gia kỹ thuật của chúng tôi đã có được kinh nghiệm sâu sắc về thành công đáng trân trọng trong hơn 20 năm. Với sự sáng tạo liên tiếp, Unionwell đặc biệt mạnh mẽ trong việc hiện thực hóa loạt công tắc vi hiệu quả cao, loạt công tắc chống nước, loạt công tắc xoay, loạt công tắc nút nhấn và các loại công tắc khác, với tổng sản lượng 300 triệu chiếc mỗi năm. Được kiểm tra đầy đủ và tuân thủ chứng nhận phòng thí nghiệm UL, ENEC, EK, CQC, công tắc chất lượng của chúng tôi hoàn toàn là chìa khóa tốt nhất để bật hoặc tắt hầu hết các thiết bị điện tử, thiết bị gia dụng, điện tử ô tô và dụng cụ điện.
+Gotten settled southern China, Huizhou Unionwell has some breaking point in gathering and saving arranged straightforwardness microswitches, modules, and other accuracy electronic parts that have been amassed with different brands locally and all through the planet. The Unionwell workshop is composed at the way among Shenzhen and Dongguang and is more than 22,000 square meters. Our innovative work get-together and experts have titanic length of relationship in striking accomplishment. With his reformist innovative cerebrum, Unionwell is particularly strong in the accreditation of fantastically talented microswitch method, waterproof switches, turning switches, press button switches and various switches with a firm yearly yield of 300 million pieces. Our quality switches are totally endeavored and meet UL, ENEC, EK and CQC research focus demand. They're the most magnificent key to turning most electronic instruments, home devices, vehicle equipment, and power contraptions on and off. 
 
-Công tắc siêu nhỏ được áp dụng trong bếp gas, máy hút bụi thông minh, động cơ đẩy, v.v.
-Công tắc vi cơ bản được áp dụng trong máy làm đá, lò nướng điện, máy rửa chén, vòi nước nóng điện, v.v.
-Công tắc vi chống nước được áp dụng trong các cọc sạc, máy cắt cỏ, máy pha cà phê, v.v.
-Công tắc vi ô tô được áp dụng trong khóa cửa ô tô, bộ biến tần ô tô, súng sạc, bộ sang số, v.v.
+A rocker switch is an electric on/off change that swings beginning with one side then onto the going with when squashed, keeping one side raised and another incapacitate. 
+
+A microswitch reacts to changes in the climate by opening or shutting a headway of progress contacts to hold down a contraption.
